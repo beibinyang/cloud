@@ -1,2 +1,2 @@
 https://beibinyang.github.io/cloud/
-loveyou.vvvv.ee
+http://loveyou.vvvv.ee
